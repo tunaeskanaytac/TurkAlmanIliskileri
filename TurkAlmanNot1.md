@@ -54,7 +54,7 @@ Maria Theresa - Varis Savaşları
 - Maria Theresa savaşa girmiyor (Umarım ikisi de büyük bir zaferle ayrılmaz.)
 	- 7 Bölme Teklifi (Savaş Bitmeden Önce)
 		- Şansölye Kont Kavvita (Bulamadım yanlış yazmışım)
-		- 3. Teklif Önemli
+		- 3.Teklif Önemli
 			- Anadolu Dışı Toprak Paylaşılacak (Avusturya-Prusya-Rusya)
 		- Mondros ile aynı
 		- Lehistan mı (Polonya) - Anadolu dışı mı
